@@ -1,5 +1,5 @@
 AnimeNintendoTechNerd who aspires to be a Designer/Cybersecurity specialist! 
-Traditional/Texture Artist. Wholesome is my tradition. 
+Traditional/Texture Artist.
 
 <!---
 FPSwitch/FPSwitch is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
